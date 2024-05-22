@@ -6,6 +6,8 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Uncle Kiki, love tasty meals, marvel universe, butterfingered), fond of creating things.
 
+- Exams are coming. Wish me a good luck)
+
 <!---
 Honeyafriend/Honeyafriend is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
